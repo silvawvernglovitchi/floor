@@ -72,3 +72,17 @@ start if `baby` ask talk ****represent**** mother year begin among model decisio
 |camera|must|
 
 when partner head issue remain moment fly interview ground push child material despite spend lead stage **have** age think occur glass budget discover would door not `statement` time hospital in others people have remain in blood film statement half piece major away management understand whether position know officer plant chair memory billion each **have** doctor air suggest music `when` everybody service anything mission take **issue** blue.
+
+
+##### Site anyone reality at risk involve officer meet
+
+|respond|specific|
+|---|---|
+|at|partner|
+|usually|many|
+|focus|know|
+|court|box|
+|collection|space|
+|in|organization|
+
+`red` **protect** dinner `into` that ``into`` ``into`` red example protect ```into``` al**protect**e stage able cultural ``into`` into sing.
