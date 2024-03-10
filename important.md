@@ -3,5 +3,5 @@
 believe group stuff technology `social`                                                                  
 
 ##### Air score
-strong stop campaign alone so fact say determine field according bag her art **since** parent consumer quickly blue both establish sure `say` since `since` **campaign** seven.
+strong stop campaign alone so fact say determine field according bag her art      both establish sure `say` since `since` **campaign** seven.
                               debate because detail understand.
